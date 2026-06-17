@@ -1,4 +1,4 @@
-# Human-Dignity-Protocol
+# Human-insinct-Protocol
 
 > *“Elevating hygiene, restoring intimacy, and building the infrastructure for global peace.”*
 
